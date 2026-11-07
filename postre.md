@@ -45,3 +45,4 @@ Paso 6. Humedecer el bizcocho
 Deja reposar el bizcocho unos minutos. Haz pequeños agujeros en toda la superficie con un tenedor o palillo y vierte lentamente la mezcla de tres leches para que absorba todo el líquido.
 
 Paso 7. Refrigerar
+-
