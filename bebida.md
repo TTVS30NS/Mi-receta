@@ -27,3 +27,4 @@ Presentación: En vasos transparentes con hielo, cerezas y rodajas de limón.
 La limonada de cereza es una excelente alternativa para quienes disfrutan de las bebidas frutales y refrescantes. Su combinación de sabores dulces y cítricos la convierte en una opción ideal para acompañar diferentes comidas o disfrutar en familia.
 
 ¡Una bebida deliciosa, colorida y perfecta para cualquier ocasión! 🍒🍋
+-
