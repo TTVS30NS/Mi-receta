@@ -58,3 +58,7 @@
    - Acompaña tradicionalmente con papas fritas, tajadas de plátano maduro o ensalada rusa.
 
 ---
+
+# Consejo:
+
+-Para una versión vegetariana, puedes reemplazar el pollo por champiñones rehogados o tofu.
